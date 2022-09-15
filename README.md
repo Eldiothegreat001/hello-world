@@ -9,3 +9,4 @@ I'm a video game head (Catch smoke on Apex Legends)
 
 I'm looking to collaborate on.. Computer Science & Reading
 
+I have a gummy bear jar... For research
